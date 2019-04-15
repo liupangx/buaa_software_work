@@ -1,0 +1,1 @@
+i am buy locate
